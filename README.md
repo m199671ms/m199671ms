@@ -21,4 +21,3 @@ Taxi App (Concept for Liberia): Ideation and market analysis for a motorcycle ta
 I'm always open to collaborating on exciting projects, especially in the fields of data analysis, software development, and business innovation.
 
 📫 Feel free to reach out via Email : m.199671.ms@gmail.com ... to connect and discuss potential collaborations!
-ئ
